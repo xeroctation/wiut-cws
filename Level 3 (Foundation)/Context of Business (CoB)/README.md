@@ -1,0 +1,1 @@
+https://intranet.wiut.uz/CourseworkUpload/ViewCourseWorks?moduleID=327&acadYear=24
